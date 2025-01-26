@@ -1,5 +1,5 @@
 # princesselleon-aternos
-public releases of the server worlds of princesselleon and her friends.
+public releases of parts of the server worlds of princesselleon and her friends.
 
 ## NOTE
 please don't stalk my friend(s.) that's not cool. (especially don't stalk PrincessElleon!)
