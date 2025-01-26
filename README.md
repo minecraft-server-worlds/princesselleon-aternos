@@ -8,4 +8,4 @@ It's likely not possible due to missing NBT data, but if you see a sign saying i
 
 Just don't stalk us to our server.
 
-***Also: feel free to burn down leah/bella's house. that glowie needs some vigalante justice.****
+***Also: feel free to burn down leah/bella's house in-game. that glowie needs some vigalante justice.****
